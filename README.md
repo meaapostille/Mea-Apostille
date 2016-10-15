@@ -1,0 +1,2 @@
+# Mea-Apostille
+MEA Apostille Attestation Services provide easy and express embassy attestation for documents originated in India that need to be produced in other countries. These need to be recognized by the respective embassies or consulates in India before they can be produced before the relevant authorities abroad.For which countries are the services available? We offer embassy attestation for your India originated personal and professional documents for countries such as Bahrain, Kuwait, Qatar, and United Arab Emirates (UAE).
